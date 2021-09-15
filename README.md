@@ -1,4 +1,3 @@
 Hi, I’m @Dromera555
 
-I program and Stuff.
-yea dats basically it
+I am the owner of DanDev Industries©.
